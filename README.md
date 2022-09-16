@@ -1,9 +1,9 @@
 - 👋 Hello
--  I’m @Santos-Thiago765
+-  I’m Thiagão do beco
 - 👀 I’m interested in food
 - 🌱 I’m currently learning cook love pop corn
 - 💞️ I’m looking to collaborate on fisk
-- 📫 How to reach me? roça
+- 📫 How to reach me? there in the field
 - 
 
 <!---
